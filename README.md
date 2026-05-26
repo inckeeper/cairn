@@ -1,0 +1,1 @@
+This project is meant for sharing resources for Cairn 2E for players in games I run. Cairn 2E is available for free online, and none of the resources here are meant for wide distribution or are intended to violate any distribution rights.
